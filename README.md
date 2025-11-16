@@ -10,4 +10,6 @@ i have anger & jealousy issues but im a pretty chill guy in general : p dont be 
 
 i havent made any cr skins yet but if you found this youve probably found my github under that :joy:
 
+kingdom fans iwec... most of yall are -11 😂😅
+
 ill add more here if ive.thought of anything else
