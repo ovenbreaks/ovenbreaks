@@ -1,5 +1,5 @@
-<p align="center">
-<img width="323" height="252" alt="First_milk_illustration" src="https://github.com/user-attachments/assets/ffc85aa1-04b5-451a-b257-f4e847a50d24" />
+![hello](https://file.garden/aPthuU9PkXWKuLKJ/Img_skinIllust_407003.webp)
+
 <details> 
   <summary>✿　𓏼　about　me.</summary>
 hello im alic im a male he/him strictly i play cookie run, minecraft, etc and my favorite characters r bellflower, abyss monarch, chocoball, agent jjajang, and agent olive and theres probably more but i dont remember shet
