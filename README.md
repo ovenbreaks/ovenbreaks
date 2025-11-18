@@ -1,7 +1,7 @@
 ![hello](https://file.garden/aPthuU9PkXWKuLKJ/Img_skinIllust_407003.webp)
 
 <details> 
-  <summary>　　　　　　　　　　　　　　　　　　　　　　　　　　　✿　𓏼　about　me.</summary>
+  <summary>　　　　　　　　　　　　　　　　　　　　　　　　　　✿　𓏼　about　me.</summary>
 hello im alic im a male he/him strictly i play cookie run, minecraft, etc and my favorite characters r bellflower, abyss monarch, chocoball, agent jjajang, and agent olive and theres probably more but i dont remember shet
 
 currently gatekeeping my links till i make one that matches my gh, from now on just read this !!!
